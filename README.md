@@ -1,1 +1,0 @@
-# Estrutura-Caso-Visual-G
